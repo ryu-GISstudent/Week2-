@@ -13,3 +13,7 @@ http://urbanbay.blog17.fc2.com/blog-entry-1859.html?sp
 好きな点：分かりやすくシンプル
 Dis like:シンプル過ぎる、もう少し道路や家、アパートの色のメリハリをつけたい
 
+
+Dear yoh
+
+課題提出遅れてすみません.....
