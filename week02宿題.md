@@ -1,7 +1,9 @@
 # Week02homework
 
 ![25752](https://github.com/ryu-GISstudent/Week2-/assets/146174088/153fc7b5-ef10-4383-8c49-76c76f0f76d8)
-http://urbanbay.blog17.fc2.com/blog-entry-1859.html?sp
+
+https://geoshape.ex.nii.ac.jp/ka/resource/11/112220270.html
+
 
 レビュー：★★★☆☆
 シンプルで見やすい、用途に合っているが物足りなさがある。
